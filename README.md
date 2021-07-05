@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shuichi-saito
 - 👀 I’m interested in cybersecurity and reading
-- 🌱 I’m currently learning ... how to always be at peak-performance without burning out
+- 🌱 I’m currently learning ... how to be an ethical hacker
 - 💞️ I’m looking to collaborate on ... nothing atm.
-- 📫 How to reach me ... instagram maybe? --> anedjai
+- 📫 How to reach me ... instagram maybe? --> a_nedjai
