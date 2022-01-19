@@ -2,4 +2,4 @@
 - 👀 I’m interested in cybersecurity and reading
 - 🌱 I’m currently learning ... how to be an ethical hacker
 - 💞️ I’m looking to collaborate on ... nothing atm.
-- 📫 How to reach me ... instagram maybe? --> a_nedjai
+- 📫 How to reach me ... twitter maybe? --> a_nedjai
